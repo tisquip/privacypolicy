@@ -1,4 +1,4 @@
-#Privacy Policy
+# Privacy Policy
 Effective Date: 07-12-2020
 
 Your privacy is important to us
